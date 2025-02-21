@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I'm Charles Michael Sarino, I'm currently studying Bachelor of Science in Information Technology at National College of Science and Technology with one year prior of Bachelor of Science in Computer Engineering at AMA Cavite Campus, I study a lot within my free time while trying to develop infinite projects. I also do 3D Modelling for entertainment and work.
+Hi, I'm Charles, I'm currently studying Bachelor of Science in Information Technology at National College of Science and Technology with one year prior of Bachelor of Science in Computer Engineering at AMA Cavite Campus, I study a lot within my free time while trying to develop infinite projects. I also do 3D Modelling for entertainment and work.
 
 
 ## 🌐 Socials:
